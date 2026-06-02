@@ -8,7 +8,7 @@ No momento, não tenho nada em especifico de valor, mas estou aprendendo isso po
   Ela/Dela
 - 🙍‍♀️ Idade:
   15 anos
--⚡ Curiosidades: 
+- ⚡ Curiosidades: 
 Tenho tentado aprender sobre esta área desde 2020, mas só comecei realmente a compreendê-la em 2026.
 Gosto de jogar e ouvir música, especialmente rock antigo. 
 Também gosto de aprender sobre história e explorar outras culturas. 
